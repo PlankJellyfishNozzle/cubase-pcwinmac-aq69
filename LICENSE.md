@@ -1,4 +1,4 @@
-# 
+# Top Cubase ferramentas para Mac OS | Ultimato Cubase ferramentas para PC Windows. Com restauração de áudio e gravação de áudio — otimizado para máximo desempenho em cada plataforma.
 
 
 
